@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Power BI**
 
-- 📫 How to reach me **https://www.linkedin.com/in/sarthak-dwivedi-461993244/**
+- 📫 How to reach me **https://www.linkedin.com/in/44sarthak-dwivedi/**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
